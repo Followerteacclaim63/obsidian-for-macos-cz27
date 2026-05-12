@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Obsidian for macOS tool with vip Obsidian for macOS Tool | quick search + offline access. Featuring quick search and offline access, it's the best choice for
 
 
 
